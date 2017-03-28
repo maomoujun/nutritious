@@ -5,7 +5,7 @@ README
 &nbsp;&nbsp;&nbsp;&nbsp;知识收费高昂的时代，我们致力于为低收入人群、有梦想、有信仰的年轻人提供知识众筹服务。
 
 ***
-![mmj](http://img11.360buyimg.com/ImImg/jfs/t4444/67/298876262/15438/2ed628cb/58cd487dNc79bbea0.jpg "zxs")
+![mmj](http://img11.360buyimg.com/ImImg/jfs/t3883/351/2290246883/58531/424d5ad0/58cd53b8N90f5dd1d.jpg "card")
 ___
 #### Books (更新列表)
 - 自控力：斯坦福大学最受欢迎心理学课程
